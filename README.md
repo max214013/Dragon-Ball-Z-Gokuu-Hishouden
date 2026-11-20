@@ -1,2 +1,2 @@
-# Dragon-Ball-Z---Gokuu-Hishouden
+# Dragon-Ball-Z-Gokuu-Hishouden
 CN patch
